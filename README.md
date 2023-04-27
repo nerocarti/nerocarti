@@ -1,4 +1,4 @@
-# 🦇 About Me ⛓:
+# 🦇 About Me ⛓
 Hi there! <br>I'm JJ, and I am a computer science student at ASU who aspires to become a software engineer. <br>My love for technology and video games has led me down the path of programming, where I have discovered the limitless potential of coding. <br>My interest in programming began when I was 16 and got VAC banned for coding a client-sided skin changer hack on CS:GO with the help of an online cheating forum. <br>Despite the mistake, I fell in love with what programming could do, and I have been passionate about it ever since. <br>In addition to programming, I have a few other hobbies, including music production, reading novels, getting the highest rank in whatever game I hyperfixate on in the moment, and fashion. <br>I often spend my free time working on passion projects that reflect my personality and view my work as windows to my character.<br>Here is where you'll catch a small glimpse into my mind of mine. :]
 
 
